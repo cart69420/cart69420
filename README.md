@@ -1,4 +1,3 @@
-hello i am cart and i know javascript and i liek making discord/minecraft bots
+im going to shove a fork up my rectum
 
-
-discord: cart#1132
+discord cart#0001
