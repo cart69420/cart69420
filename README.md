@@ -6,4 +6,6 @@ hello
 
 ![trophy](https://github-profile-trophy.vercel.app/?username=cart69420&theme=radical)
 
+![](https://komarev.com/ghpvc/?username=cart69420&color=blueviolet&label=fans)
+
 discord cart#4780
